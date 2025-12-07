@@ -9,4 +9,4 @@ My name is Rahavan Sivaguganantha, and I'm a fourth year Computer Engineering st
 - Outside of all this, I enjoy learning about finance, watching basketball and baseball, and working out
 
 Feel free to reach out to me 📫:  
-[LinkedIn](www.linkedin.com/in/rahavans/) | [Email](mailto:rsivaguganantha@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/rahavans/) | [Email](mailto:rsivaguganantha@gmail.com)
